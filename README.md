@@ -1,0 +1,1 @@
+Amplify local area for image in research.
